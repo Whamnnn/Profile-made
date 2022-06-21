@@ -1,1 +1,1 @@
-# Profile-made
+# Spartan Coding Club Profile Made
